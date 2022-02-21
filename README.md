@@ -1,0 +1,1 @@
+# Smailkhanov-Baurzhan-CV
